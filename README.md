@@ -1,3 +1,3 @@
-# SEERAT. BRAND
-# TRICKS-BY-SEERAT
-# https://www.youtube.com/@Trick-by-seerat-brand
+# VISHU. RULEX
+# LEGEND-FUCKER
+# https://youtube.com/@vishuking-rulex
